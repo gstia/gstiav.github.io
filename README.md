@@ -1,1 +1,0 @@
-# gstiav.github.io
